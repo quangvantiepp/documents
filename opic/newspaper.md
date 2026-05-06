@@ -1,21 +1,21 @@
-Chào bạn, để đạt được cấp độ **Advanced Low (AL)** trong bài thi nói (như OPIc hay các bài thi đánh giá năng lực nói tương tự), bạn không cần phải dùng từ vựng quá phức tạp hay câu quá dài. Bí quyết là **phát âm rõ ràng, ngữ điệu tự nhiên, phản xạ tốt và cấu trúc câu rõ ràng** (có mở, thân, kết).
+Để đạt được cấp độ **Advanced Low (AL)** trong bài thi nói (như OPIc hay các bài thi đánh giá năng lực nói tương tự), bạn không cần phải dùng từ vựng quá phức tạp hay câu quá dài. Bí quyết là **phát âm rõ ràng, ngữ điệu tự nhiên, phản xạ tốt và cấu trúc câu rõ ràng** (có mở, thân, kết).
 Dưới đây là các câu trả lời mẫu (scripts) cho chủ đề **Newspapers (Báo chí)** được thiết kế với từ vựng ngắn gọn, dễ nhớ, tự nhiên nhưng vẫn đủ ý để đạt mức điểm mong muốn.
 ### Bộ 1: Chủ đề Báo chí & Thói quen đọc
 #### 1-1. Tell me about one of your favorite newspapers and why you like it.
  * **Ý chính:** Kể tên tờ báo yêu thích và lý do (tin tức nhanh, thiết kế dễ đọc).
  * **Script mẫu:**
-   > My favorite newspaper is *Tuoi Tre News*.
+   > My favorite newspaper is *Vnexpress News*.
    I like it because it is very easy to read. 
-   First, the design is clean, so I can find the news quickly. 
-   Second, it covers many different topics, like sports, technology, and lifestyle. 
+   It is very popular and the design is clean, so I can find the news quickly. 
+   It covers many different topics, like sports, technology, entertainment and lifestyle. 
    I can always find something interesting to read on my way to work.
    > 
 #### 1-2. Tell me about your routine when you read a newspaper. Where do you like to read the newspaper? And how do you choose what to read first?
  * **Ý chính:** Thói quen đọc ở đâu và chọn tin tức như thế nào.
  * **Script mẫu:**
-   > I usually read the news on my smartphone during my morning commute. 
+   > I usually read the news on my smartphone during my morning commute.
    When I open the app, I always look at the main headline first to see what is happening in the world. 
-   After that, I scroll down to the business section because I want to know about the market. 
+   After that, I scroll down to the technology section because I want to know about the technology changes. 
    If a title catches my eye, I will click and read the full story.
    > 
 #### 1-3. How did you first become interested in reading newspapers? What attracted you to reading newspapers when you were younger?
