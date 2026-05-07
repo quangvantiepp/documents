@@ -22,9 +22,9 @@ Dưới đây là các câu trả lời mẫu (scripts) cho chủ đề **Newspa
  * **Ý chính:** Bắt đầu từ khi nào và tại sao lại thích lúc nhỏ.
  * **Script mẫu:**
    > I started reading newspapers when I was in high school. 
-   At that time, my father bought a physical newspaper every morning, and I used to look at the sports and entertainment pages. 
+   At that time, my father bought a physical newspaper every morning, and I used to look at the sports, technology, music and entertainment pages. 
    I was attracted to the colorful pictures and short, funny stories. 
-   Over the years, this habit grew, and now I read the news every day to stay updated.
+   Over the years, this habit grew, and now I read the news every day on my smartphone to stay updated.
    > 
 ### Bộ 2: Các loại báo & Tin tức đáng nhớ
 #### 2-1. What kinds of newspapers are there in your country? What kind of news do they typically report on, and what are some sections they have?
