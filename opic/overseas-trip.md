@@ -5,7 +5,12 @@ Giám khảo OPIc chấm điểm AL dựa trên **sự trôi chảy, nói thành
 *(Dùng toàn từ siêu cơ bản: *like, hot, friendly, smile*... nhưng ăn điểm nhờ cách nói dài ý)*
 > "To be honest, I really love **Thailand**. It is very close to my country, so it is very easy to travel there.
 > The first thing I love about Thailand is the weather. It is pretty hot, but I like it. Bangkok is a very big city with many beautiful night markets and street food. But **the best thing is the people**. Thai people are super friendly. They always smile at you. Even when I could not speak their language, they still tried their best to help me. I felt very happy and safe there. That is why I want to go back to Thailand again."
-> 
+
+To be honest, Thailand is one of my favorite countries that I’ve ever visited. Since it’s very close to Vietnam, it’s quite convenient to travel there.
+One thing I really liked about Thailand was the weather. Even though it was quite hot, I still enjoyed it because it gave the city a very energetic atmosphere.
+I spent most of my time in Bangkok, and I was really impressed by the night markets and street food. The city felt very lively, especially at night when the streets were full of lights, tourists, and local food vendors.
+However, the best thing about Thailand was definitely the people. Thai people were extremely friendly and welcoming. Even when I couldn’t speak Thai, they still tried their best to help me whenever I asked for directions or needed something.
+Because of that, I felt very comfortable and safe during the trip. Overall, visiting Thailand was a really memorable experience, and I definitely want to go back there someday.
  * **Từ vựng thay thế siêu dễ:** *very close* (rất gần), *super friendly* (siêu thân thiện), *tried their best* (cố hết sức), *go back* (quay lại).
 ### 2. Chuyến đi đầu tiên thời trẻ
 *(Bí quyết AL ở đây: Bạn chỉ cần dùng chuẩn thì quá khứ *went, was, landed, ate...*)*
