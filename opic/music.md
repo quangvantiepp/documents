@@ -1,5 +1,5 @@
 ### Introduce yourself (AL)
-Hello. My name is Quang Van Tiep. I'm twenty-five years old, and I'm from Son La Province. I currently live and work in Bac Ninh.
+Hello. My name is Quang Van Tiep. I'm twenty-five years old, and I'm from Son La Province. I currently live and work in Ha Noi.
 
 In my free time, I enjoy watching movies, listening to music, and traveling whenever I have the chance.
 
