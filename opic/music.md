@@ -1,5 +1,5 @@
 ### Introduce yourself (AL)
-Hello. My name is Quang Van Tiep. I'm twenty-five years old, and I'm from Son La Province. I currently live and work in Ha Noi.
+Hello. My name is Quang Van Tiep. I'm twenty-six years old, and I'm from Son La Province. I currently live and work in Ha Noi city.
 
 In my free time, I enjoy watching movies, listening to music, and traveling whenever I have the chance.
 
@@ -15,9 +15,9 @@ Thank you.
 
 I listen to many kinds of music depending on my mood and what I'm doing.
 
-When I want to relax after work, I usually listen to pop music because it's enjoyable and helps me forget about stress. If I'm working out or going for a run, I prefer EDM because the fast rhythm gives me more energy and keeps me motivated.
+When I want to relax after work, I usually listen to pop music because it's enjoyable and helps me forget about stress. If I'm working out or going for a run, I prefer EDM because the fast beat gives me more energy and keeps me motivated.
 
-Sometimes, when I miss my family or my hometown, I like listening to classical music or country music. Those songs make me feel calm and remind me of my childhood.
+Sometimes, when I miss my family or my hometown, I like listening to classical or country music. Those songs make me feel calm and remind me of my childhood.
 
 My favorite singers are Taylor Swift and Ed Sheeran. I like Taylor Swift because her songs are catchy and the lyrics tell interesting stories about life and relationships.
 
