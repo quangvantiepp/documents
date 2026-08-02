@@ -1,66 +1,115 @@
-3.1 & 3.2. What do people normally do on the internet? What do you usually do on the internet?
-Bối cảnh dễ nhớ: Mọi người lướt mạng xã hội, xem phim. Bản thân bạn thì dùng để đọc tin tức công nghệ (read technology news) và làm việc/học tập (work and study).
+### 1. What do people normally do on the internet? Do they play games, watch television, or watch movies? Talk about all the things people do online.
+Nowadays, people use the internet for almost everything in their daily lives.
 
-Script siêu đơn giản đạt AL:
+Many people watch movies, TV shows, or short videos online because it's much more convenient than watching traditional television. Some people enjoy playing online games with their friends, while others spend time on social media to share photos, watch short videos, or keep in touch with family and friends.
 
-"In general, people use the internet for many things, like watching movies, playing games, or shopping online.
+The internet is also an important tool for studying and working. Students search for information, attend online classes, and watch educational videos. Employees use it to send emails, join online meetings, and communicate with coworkers.
 
-For me, I use the internet every day mostly for my work and entertainment. 
-In the morning, I always open my favorite app to read the latest tech news. 
-It helps me stay updated with new smartphones and gadgets. 
-During the day, I use the internet to send emails to my colleagues and solve work problems. 
-In the evening, I often use it to listen to music or chat with my friends. 
-The internet makes my life so much easier."
+As for me, I usually watch YouTube, listen to music, and search for information related to my work.
 
-3.3. Tell me about your early experience of surfing the internet. What do you remember particularly about that experience?
-Bối cảnh dễ nhớ: Lần đầu dùng internet khi học trung học (high school) tại một quán net (internet cafe). Mạng lúc đó rất chậm (very slow) nhưng vẫn thấy rất kỳ diệu (amazing).
+I think the internet has become an essential part of our lives because it helps us work, study, communicate, and relax all in one place.
 
-Script siêu đơn giản đạt AL: (Chú ý dùng thì Quá khứ)
+###  2. What do you usually do on the internet? Do you like to shop online? Do you like sharing videos with other people? Tell me about everything that you do online.
+I use the internet every day, both for work and for my personal life.
 
-"I remember my very first time using the internet was when I was in high school. 
-At that time, my family didn't have a computer, so I went to a local internet cafe with my friends.
+After work, I usually watch YouTube videos or listen to music because it helps me relax after a busy day. I also use social media to chat with my friends and see what they've been doing.
 
-To be honest, the connection back then was incredibly slow. 
-We had to wait for a long time just to load one website. 
-However, I felt it was so amazing because I could look up information from all over the world and play simple online games. 
-That early experience was very special and I will never forget it."
+Sometimes, I shop online for clothes, electronic devices, or daily necessities because it's convenient and saves me time. Instead of going to a shopping mall, I can compare prices and order everything from my phone.
 
-3.5. Talk about a memorable posting that you saw on the internet. Why was it memorable for you?
-Bối cảnh dễ nhớ: Một bài đăng về chuyến đi phượt bằng xe máy (a long motorcycle trip) của một vlogger. Bạn thích vì bạn cũng mê xe máy và phong cảnh rất đẹp.
+At work, I often search for technical information, read documents, and check my emails. I also use the internet to improve my skills by watching programming videos.
 
-Script siêu đơn giản đạt AL: (Chú ý dùng thì Quá khứ)
+Overall, the internet makes my life much easier, and I use it for almost everything.
 
-"A memorable posting I saw on the internet recently was a video from a travel vlogger. 
-He shared his story about a 400-kilometer motorcycle trip through the mountains.
+### 3. Tell me about your early experience of surfing the internet. What do you remember particularly about that experience?
+I still remember the first time I used the internet.
 
-The posting became very memorable to me because the scenery in the video was beautiful, 
-even though the weather was very harsh with heavy rain and heat. 
-I am also a big fan of riding motorcycles, so his story really inspired me. 
-After watching it, I immediately shared the video with my friends and we started planning our own trip."
+I was in elementary school, and my teacher took our class to the computer room. Everything looked new and exciting because I had never used the internet before.
 
-3.6. Talk about the videos that you watch on the internet. What kinds of videos do you like to watch for fun, for your work or for school?
-Bối cảnh dễ nhớ: Xem video hướng dẫn sửa xe/bảo dưỡng xe (vehicle maintenance) để phục vụ sở thích và video học tiếng Anh (English learning videos) để phục vụ công việc.
+The first thing I searched for was pictures of my favorite cartoon characters. I was surprised that I could find so many pictures and information within just a few seconds.
 
-Script siêu đơn giản đạt AL:
+Later, my classmates and I played a simple online game together. We had a lot of fun, and everyone was laughing.
 
-"I watch different kinds of videos on the internet depending on my needs. 
-For fun and hobbies, I love watching videos about motorcycle maintenance. 
-I want to learn how to fix small problems and protect my engine, so these videos are very useful for me.
+Looking back, it was a small experience, but it made me realize how amazing the internet was. Since then, using the internet has become a part of my daily life.
 
-For my work, I usually watch English communication videos. 
-Since I need to improve my speaking skills for my career, 
-I spend about thirty minutes every night watching tutorials and practicing my pronunciation. 
-It helps me a lot in my daily job."
+### 4. Tell me about when you used the internet to get a project done. What was the project about? How did the internet help you do that project?
+One time, I used the internet to complete an important project at work.
 
-3.9. What kinds of concerns do people have about internet use nowadays?
-Bối cảnh dễ nhớ: Hai mối lo ngại lớn nhất: Tin giả (fake news) và Bảo mật thông tin cá nhân (privacy/personal data safety).
+I needed to learn about a new technology that I wasn't familiar with, so I searched for technical documents, watched YouTube tutorials, and read several articles online.
 
-Script siêu đơn giản đạt AL:
+Whenever I couldn't understand something, I searched for examples or visited programming websites to find the answer.
 
-"While the internet is great, people have a few big concerns nowadays. 
-The first problem is fake news. 
-There is too much incorrect information on social media, and it can confuse many people.
+Because of the internet, I finished my work much faster than I expected. I also learned many new things that I still use today.
 
-The second concern is privacy and data safety. 
-Many users worry that their personal information, like passwords or phone numbers, might be stolen by hackers. 
-I think we all need to be very careful when sharing anything on the internet today."
+That experience showed me that the internet is not only for entertainment but also a very powerful learning tool.
+
+### 5. I'm sure you have things that you remember seeing on the internet. Talk about a memorable posting that you saw on the internet. Why was it memorable for you?
+One of the most memorable videos I saw online was about volunteers helping people during a serious flood.
+
+They carried food, clean water, and medicine to families who had lost their homes. Some volunteers even rescued elderly people and small children.
+
+What impressed me the most was that they helped complete strangers without expecting anything in return.
+
+After watching the video, I shared it with my friends because I wanted more people to see it.
+
+It reminded me that although there is a lot of negative news on the internet, there are also many stories that give people hope.
+
+### 6. Talk about the videos that you watch on the internet. What kinds of videos do you like to what for fun, for your work or for school? Why do you like to watch those videos?
+I watch many different kinds of videos depending on what I need.
+
+For entertainment, I enjoy watching travel vlogs, funny videos, and food reviews because they help me relax after work.
+
+For my job, I often watch programming tutorials and technology reviews. They help me learn new skills and keep up with the latest trends.
+
+When I was a university student, I also watched online lectures to understand difficult subjects more easily.
+
+I prefer videos because they're easy to understand, and I can pause or replay them whenever I need.
+
+That's why online videos have become one of my favorite ways to learn and relax.
+
+### 7. What did you do on the internet yesterday? What websites did you visit? Tell me about the things you did online yesterday.
+Yesterday, I used the internet several times throughout the day.
+
+In the morning, I checked my emails and replied to a few work messages.
+
+During my lunch break, I watched a few YouTube videos while eating. Later in the afternoon, I searched for some technical information to help me solve a problem at work.
+
+After I got home, I listened to music while relaxing and spent a little time scrolling through Facebook.
+
+Before going to bed, I watched a short travel vlog because I'm planning a trip in the future.
+
+Overall, I used the internet for both work and entertainment, just like I do almost every day.
+
+### 8. Describe something memorable you saw online for work or for fun. Maybe it was something impressive, unusual or meaningful to you. What was special about it?
+One of the most memorable things I watched online was a short documentary about a young man who worked hard to achieve his dream.
+
+Even though he faced many difficulties, he never gave up. Instead, he kept learning and improving himself until he finally became successful.
+
+I found the video very inspiring because it reminded me that success doesn't happen overnight.
+
+After watching it, I shared it with several friends, and they also said it motivated them.
+
+Even now, I sometimes think about that video whenever I feel tired or lose motivation.
+
+### 9. What kinds of concerns do people have about internet use nowadays? They could be about issues safety, privacy, How have these concerns affected people's lives
+Nowadays, many people are concerned about safety and privacy on the internet.
+
+One common problem is online scams. Some people receive fake messages or emails asking for personal information or money.
+
+Another concern is fake news. Sometimes it's difficult to know whether the information online is true or not.
+
+Parents are also worried that their children spend too much time playing games or using social media instead of studying.
+
+Because of these problems, many people have become more careful about what they share online. They use stronger passwords and avoid clicking on suspicious links.
+
+I believe the internet is very useful, but people should use it wisely and responsibly.
+
+### 10. How is internet usage different among people in different age groups? How do young people use the internet differently? Discuss this matter in detail
+Internet usage is quite different depending on a person's age.
+
+Young people usually use the internet for entertainment, such as watching videos, playing games, chatting with friends, or using social media. They are also quick to learn new apps and technologies.
+
+Older people, however, tend to use the internet for more practical purposes. For example, they often read the news, check emails, shop online, or search for health information.
+
+Even though their purposes are different, both age groups depend on the internet in their daily lives.
+
+I think this difference will become smaller in the future because more older people are becoming familiar with smartphones and new technology.
