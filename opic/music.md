@@ -19,9 +19,9 @@ When I want to relax after work, I usually listen to pop music because it's enjo
 
 Sometimes, when I miss my family or my hometown, I like listening to classical or country music. Those songs make me feel calm and remind me of my childhood.
 
-My favorite singers are Taylor Swift and Ed Sheeran. I like Taylor Swift because her songs are catchy and the lyrics tell interesting stories about life and relationships.
+My favorite singers are Taylor Swift and Son Tung M-TP. I like Taylor Swift because her songs are catchy and the lyrics tell interesting stories about life and relationships.
 
-I also enjoy Ed Sheeran's music because it's emotional and relaxing. I think he's one of the most talented singers today.
+I also enjoy Son Tung M-TP's music because it's emotional and relaxing. I think he's one of the most talented singers today in Vietnam.
 
 For me, music is more than just entertainment. It helps me relax, improves my mood, and sometimes even brings back happy memories.
 
@@ -51,7 +51,7 @@ When I was in elementary school, my parents often played Vietnamese folk songs a
 
 As I got older, my taste in music gradually changed. In middle school, I started listening to Vietnamese pop music, especially songs by Son Tung M-TP. My friends and I often shared our favorite songs and talked about new music after school.
 
-When I entered high school and university, I became interested in English music. I started listening to artists like Taylor Swift and Ed Sheeran. Besides enjoying their music, I also learned many new English expressions from their songs.
+When I entered high school and university, I became interested in English music. I started listening to artists like Taylor Swift. Besides enjoying their music, I also learned many new English expressions from their songs.
 
 Nowadays, I listen to many different kinds of music depending on my mood. I think music has become an important part of my daily life because it helps me relax, stay motivated, and reduce stress after work.
 
