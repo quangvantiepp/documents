@@ -1,13 +1,17 @@
 ### Introduce yourself (AL)
-Hello. My name is Quang Van Tiep. I'm twenty-six years old, and I'm from Son La Province. I currently live and work in Ha Noi city.
+Hello. My name is Quang Van Tiep. 
+I'm twenty-six years old, and I'm from Son La Province.
 
 In my free time, I enjoy watching movies, listening to music, and traveling whenever I have the chance.
 
-People often say that I'm a quiet person, but I'm also hardworking and responsible. I always try to do my best, whether it's at work or in my daily life.
+People often say that I'm a quiet person, but I'm also hardworking and responsible.
 
-Currently, I work at Samsung Electronics Vietnam. My job requires me to read technical documents and communicate with colleagues from different countries, so English is a very important part of my work.
+Currently, I work at Samsung Electronics Vietnam. 
+My job requires me to communicate with colleagues from different countries, 
+so English is a very important part of my work.
 
-That's one of the main reasons I'm taking this English test today. I hope to improve my communication skills and become more confident at work.
+That's one of the main reasons I'm taking this English test today. 
+I hope to improve my communication skills and become more confident at work.
 
 Thank you.
 
@@ -32,15 +36,15 @@ For me, music is more than just entertainment. It helps me relax, improves my mo
 
 I usually listen to music when I'm commuting to work, exercising, or relaxing at home.
 
-Every morning, I wear my earphones on the bus and listen to pop songs or lo-fi music. It helps me start my day in a good mood.
-
-At work, I sometimes play instrumental music because it helps me concentrate better, especially when I have a lot of work to do.
+Every morning, I wear my earphones on the bus and listen to pop songs. It helps me start my day in a good mood.
 
 At home, I usually play music through a Bluetooth speaker while I'm resting or doing some housework.
 
 I don't listen to the radio very often these days because I can easily find any song I want on Spotify or YouTube.
 
-I've only been to one live concert, but it was an unforgettable experience. The atmosphere was exciting, and everyone was singing together. It felt completely different from listening to music at home.
+I've only been to one live concert, but it was an unforgettable experience. 
+The atmosphere was exciting, and everyone was singing together. 
+It felt completely different from listening to music at home.
 
 Overall, I enjoy music in many different ways depending on where I am and how I feel.
 
@@ -51,8 +55,7 @@ I first became interested in music when I was a little kid.
 When I was in elementary school, my parents often played Vietnamese folk songs at home. 
 At that time, I didn't really understand the lyrics, but I enjoyed listening to the beautiful melodies.
 
-As I got older, my taste in music gradually changed. In middle school, I started listening to Vietnamese pop music, especially songs by Son Tung M-TP. 
-My friends and I often shared our favorite songs and talked about new music after school.
+In middle school, I started listening to Vietnamese pop music, especially songs by Son Tung M-TP. 
 
 When I entered high school and university, I became interested in English music. 
 I started listening to artists like Taylor Swift. 
@@ -88,9 +91,8 @@ They are small, easy to carry, and have very good sound quality.
 People can use them while commuting, exercising, or even working without worrying about tangled cables.
 
 Another popular product is Bluetooth speakers. 
-Many people enjoy using them at home, during camping trips, or when they have parties with friends. They are portable, easy to connect to a smartphone, and can play music loudly with clear sound.
-
-Besides that, many music lovers also subscribe to music streaming services like Spotify or YouTube Music. These apps allow people to listen to millions of songs anytime and anywhere.
+Many people enjoy using them at home, during camping trips, or when they have parties with friends. 
+They are easy to connect to a smartphone, and can play music loudly with clear sound.
 
 I think these new products are popular because they make listening to music much easier and more enjoyable than before.
 
