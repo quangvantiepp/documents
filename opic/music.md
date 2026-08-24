@@ -4,8 +4,6 @@ I'm twenty-six years old, and I'm from Son La Province.
 
 In my free time, I enjoy watching movies, listening to music, and traveling whenever I have the chance.
 
-People often say that I'm a quiet person, but I'm also hardworking and responsible.
-
 Currently, I work at Samsung Electronics Vietnam. 
 My job requires me to communicate with colleagues from different countries, 
 so English is a very important part of my work.
