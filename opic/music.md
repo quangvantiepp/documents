@@ -6,7 +6,7 @@ In my free time, I enjoy watching movies, listening to music, and traveling when
 
 Currently, I work at Samsung Electronics Vietnam. 
 My job requires me to communicate with colleagues from different countries, 
-so English is a very important part of my work.
+so English is a big part of my work.
 
 That's one of the main reasons I'm taking this English test today. 
 I hope to improve my communication skills and become more confident at work.
