@@ -9,7 +9,7 @@ My job requires me to communicate with colleagues from different countries,
 so English is a big part of my work.
 
 That's one of the main reasons I'm taking this English test today. 
-I hope to improve my communication skills and become more confident at work.
+I want to improve my communication skills and become more confident at work.
 
 Thank you.
 
@@ -28,39 +28,37 @@ I like Taylor Swift because her songs are catchy and the lyrics tell interesting
 I also enjoy Son Tung M-TP's music because it's emotional and relaxing. 
 He's one of the most talented singers today in Vietnam.
 
-For me, music is more than just entertainment. It helps me relax, improves my mood, and sometimes even brings back happy memories.
-
 ### 1.2 When and where do you usually go to listen to music? Do you listen to the radio? Do you go to concerts? Tell me about the different ways you enjoy music.
 
 I usually listen to music when I'm commuting to work, exercising, or relaxing at home.
 
 Every morning, I wear my earphones on the bus and listen to pop songs. It helps me start my day in a good mood.
 
-At home, I usually play music through a Bluetooth speaker while I'm resting or doing some housework.
+At home, I usually listen to music on a Bluetooth speaker while I'm resting or doing some housework.
 
 I don't listen to the radio very often these days because I can easily find any song I want on Spotify or YouTube.
 
-I've only been to one live concert, but it was an unforgettable experience. 
-The atmosphere was exciting, and everyone was singing together. 
-It felt completely different from listening to music at home.
+I've only been to one live concert, but it was an unforgettable experience.
 
-Overall, I enjoy music in many different ways depending on where I am and how I feel.
+The atmosphere was exciting, and everyone was singing together. 
+
+It felt completely different from listening to music at home.
 
 ### 1.3 When did you first become interested in music? What kinds of music did you like at first? Tell me how your interest in music developed from your childhood until today
 
 I first became interested in music when I was a little kid.
 
-When I was in elementary school, my parents often played Vietnamese folk songs at home. 
-At that time, I didn't really understand the lyrics, but I enjoyed listening to the beautiful melodies.
+My parents often played Vietnamese folk songs at home. At that time, I didn't really understand the lyrics, but I enjoyed the beautiful melodies.
 
-In middle school, I started listening to Vietnamese pop music, especially songs by Son Tung M-TP. 
+In middle school, I started listening to Vietnamese pop music, especially songs by Son Tung M-TP.
 
-When I entered high school and university, I became interested in English music. 
-I started listening to artists like Taylor Swift. 
-Besides enjoying their music, I also learned many new English expressions from their songs.
+When I entered high school and later went to university, I became more interested in English music. I started listening to artists like Taylor Swift.
 
-Nowadays, I listen to many different kinds of music depending on my mood. 
-I think music has become an important part of my daily life because it helps me relax, stay motivated, and reduce stress after work.
+Besides enjoying their music, I also picked up some new English expressions from their songs.
+
+Nowadays, I listen to different kinds of music depending on my mood.
+
+Music has become an important part of my daily life.
 
 ### 1.4 Could you think back to a particularly memorable time when you heard live music? When was it? Where were you? Who were you with? What happened that performance so memorable?
 
@@ -111,6 +109,4 @@ Both of them help me reduce stress and enjoy my free time.
 I also listen to both almost every day.
 
 The biggest difference is probably how they make me feel. 
-Pop music helps me relax, while EDM makes me feel excited and full of energy.
-
-That's why I enjoy both of them. I simply choose the one that matches my mood at the time.
+Pop music helps me relax, while EDM makes me feel excited and full of energy.  
