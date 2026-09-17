@@ -97,7 +97,7 @@ I think these new products are popular because they make listening to music much
 I'd like to compare pop music and EDM because they are the two types of music I listen to most often.
 
 Pop music is usually relaxing and easy to listen to. 
-Most pop songs have meaningful lyrics, and I often listen to them when I'm commuting or relaxing after work. 
+Most pop songs have meaningful lyrics about life and relationships, and I often listen to them when I'm commuting exercising or relaxing at home. 
 They help me feel calm and improve my mood.
 
 On the other hand, EDM is much faster and more energetic. 
@@ -105,8 +105,5 @@ I usually listen to EDM when I go to the gym or when I need extra motivation.
 The strong beat gives me more energy and helps me stay active.
 
 Although these two types of music are quite different, they also have something in common. 
-Both of them help me reduce stress and enjoy my free time. 
+Both of them help me reduce stress after work and enjoy my free time. 
 I also listen to both almost every day.
-
-The biggest difference is probably how they make me feel. 
-Pop music helps me relax, while EDM makes me feel excited and full of energy.  
