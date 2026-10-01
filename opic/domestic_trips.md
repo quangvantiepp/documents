@@ -57,7 +57,7 @@ For me, I usually travel during weekdays or avoid major holidays whenever possib
 
 ### 4-2: What are some issues people have regarding trips? What are the main issues or concerns they typically raise or discuss? What causes these concerns? What is being done to address them for the future?
 There are several problems that people often worry about when they travel.
-
+ 
 One common concern is the cost. During holidays or peak seasons, hotels and transportation can become much more expensive. Because of that, some people have to spend more money than they originally planned.
 
 Another problem is overcrowding. Popular destinations can become extremely busy, especially during national holidays. This can lead to long lines, traffic jams, and crowded beaches. Sometimes people spend more time waiting than actually enjoying their trip.
